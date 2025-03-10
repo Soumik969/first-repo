@@ -1,7 +1,6 @@
 # first-repo
 <br>
-bruhh 
-mr.Soumik
+bruhh let's start the journey of infinite possibilities!!!!!
 
 
 
